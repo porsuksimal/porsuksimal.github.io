@@ -1,3 +1,3 @@
-# porsuksimal.github.io-
+# porsuksimal.github.io
 
 Şimal Porsuk ADS-352
